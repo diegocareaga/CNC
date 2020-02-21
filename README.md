@@ -1,5 +1,5 @@
 # CNC
-3D PARTS TO CNC HIGH QUALITY 
+3D PARTS FOR CNC HIGH QUALITY 
 
 For more information visit my website or my channel on Youtube.
 
